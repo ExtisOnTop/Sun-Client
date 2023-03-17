@@ -1,4 +1,4 @@
-![Banner](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgithub.com%2FSolar-Tweaks&psig=AOvVaw11kXfVRVcNXRgKP9WeJxST&ust=1679175800555000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCIiY5br34_0CFQAAAAAdAAAAABAE)
+![Banner](https://imgur.com/gallery/v2VVu)
 
 # Solar Tweaks
 
